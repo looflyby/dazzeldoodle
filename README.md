@@ -20,7 +20,7 @@
 
 
     . ⌗ . ★ , @ Dazzel/Arla ¡ .
-      ✦ , € S!She › T!them , ıllı .
+      ✦ , € S!She › H!Her , ıllı .
        ﹒⇣⇡﹒☆ ➥ minor 💥 . ×
       ★﹕◐﹒％﹐multifandom ⟡﹒⿸﹑␥
   ──★ ♫ ⁿᵒʷ ᵖˡᵃʸᶦⁿᵍ¦HOT TO GO! by C.R ¡! ❞ 
