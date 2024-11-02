@@ -12,6 +12,9 @@
 
 
  Call me by " Dazzel , Danny " 
- pronouns go by " She / Her"
+ 
+pronouns go by " She / Her"
 
+aroace + ADHD irl 
 
+multifandom but mostly onto ' Nicktoons unite , Ninjago , Evangelion
