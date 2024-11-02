@@ -11,12 +11,7 @@
 
 
 
-  Dazzel # Ramby 
-
-  S¡She  |   H¡Her  
-
- aroace +  adhd
- 
-multifandom
+ Call me by " Dazzel , Danny " 
+pronouns go by " She / Her"
 
 
