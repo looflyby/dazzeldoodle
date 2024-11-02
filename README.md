@@ -10,9 +10,10 @@
 <div align="center"  
 
 
-, ★ . @ Dazzel # Ramby ⚡
 
-S¡She  ,   H¡Her  🌡️
+ @ Dazzel # Ramby ⚡
+
+,  S¡She  ,   H¡Her  🌡️
 
 ➥ aroace "  adhd
 
