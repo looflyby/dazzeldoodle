@@ -12,6 +12,6 @@
 
 
  Call me by " Dazzel , Danny " 
-pronouns go by " She / Her"
+ pronouns go by " She / Her"
 
 
