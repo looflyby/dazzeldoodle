@@ -13,7 +13,7 @@
 
  @ Dazzel # Ramby ⚡
 
-%   ,   S¡She  |   H¡Her  🌡️
+%  S¡She  |   H¡Her  🌡️
 
 ➥ aroace +  adhd
 
