@@ -10,6 +10,10 @@
 <div align="center"  
 
 
-Dazzel / Ramby
-pronouns ➡ she/her
-sexuality ➡ aroace 
+@ . Dazzel # Ramby
+
+S¡She  , H¡Her  🌡️
+
+➥ aroace "  adhd
+
+
