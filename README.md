@@ -22,7 +22,7 @@
 
 ---
 
-   **"You're not gonna get away with this Whippy Dip! You can’t keep an evil clone down! I'll be back!"**
+   **"*You're not gonna get away with this Whippy Dip! You can’t keep an evil clone down! I'll be back!*"**
 
 
 
