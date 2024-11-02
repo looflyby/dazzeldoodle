@@ -13,11 +13,11 @@
 
  Call me by " Dazzel , Danny " 
  
-pronouns go by " She / Her"
+*pronouns go by* *" She / Her"*
 
-aroace + ADHD irl 
+*aroace + ADHD irl* 
 
-multifandom     ! 
+*multifandom     !* 
    
 
 
