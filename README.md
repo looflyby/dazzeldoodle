@@ -11,7 +11,7 @@
 
 
 
- Call me by " Dazzel , Danny " 
+ *Call me by " Dazzel , Danny "* 
  
 *pronouns go by* *" She / Her"*
 
