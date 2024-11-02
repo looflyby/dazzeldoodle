@@ -17,4 +17,9 @@ pronouns go by " She / Her"
 
 aroace + ADHD irl 
 
-multifandom but mostly onto ' Nicktoons unite , Ninjago , Evangelion
+multifandom     ! 
+   
+
+
+
+
