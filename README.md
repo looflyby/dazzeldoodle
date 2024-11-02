@@ -12,7 +12,8 @@
 
 
  *Call me by " Dazzel , Ramby "* 
- *pronouns go by* *" She / Her"*
+ 
+*pronouns go by* *" She / Her"*
 
 *aroace + ADHD irl* 
 
