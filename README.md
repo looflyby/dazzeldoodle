@@ -2,3 +2,6 @@
 
 
 <p align="center"><i>"She's so kind. I will do everything to protect that smile on our gentle Mizukage. I hope I can." </i></p>
+
+
+[![Untitled530-20250211011824.png](https://i.postimg.cc/65kdDLJC/Untitled530-20250211011824.png)](https://postimg.cc/gnKXhh00)
