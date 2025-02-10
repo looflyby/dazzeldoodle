@@ -32,4 +32,4 @@
  𝙨𝙪𝙥𝙥𝙤𝙧𝙩 𝙄𝙨𝙧𝙖𝙚𝙡 , 𝙥𝙚𝙤𝙥𝙡𝙚 𝙩𝙝𝙖𝙩 𝙖𝙧𝙚 𝙬𝙚𝙞𝙧𝙙 𝙞𝙣 𝙜𝙚𝙣𝙚𝙧𝙖𝙡 , 𝙥𝙧𝙤𝙨𝙝𝙞𝙥𝙥𝙚𝙧 + 𝙙𝙖𝙧𝙠𝙨𝙝𝙞𝙥𝙥𝙚𝙧 , 𝙗𝙖𝙨𝙞𝙘 𝙙𝙣𝙞 𝙘𝙧𝙞𝙩𝙚𝙧𝙞𝙖 .
 
                 
-[![Tumblr-l-150497860111201.gif](https://i.postimg.cc/PfYHhT09/Tumblr-l-150497860111201.gif)](https://postimg.cc/vDYktFYt)
+[![Tumblr-l-150497860111201.gif](https://i.postimg.cc/PfYHhT09/Tumblr-l-150497860111201.gif)](https://postimg.cc/vDYktFYt)[![Tumblr-l-150627787032516.gif](https://i.postimg.cc/tg80QMk9/Tumblr-l-150627787032516.gif)](https://postimg.cc/Y4NDQ8TP)
