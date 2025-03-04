@@ -1,5 +1,4 @@
-[![Untitled529-20250211010258
-.png](https://i.postimg.cc/XJ4LtK5s /Untitled529-20250211010258.png)) (https: //postimg.cc/jW3y77Zf)
+[![Tumblr-l-104330118836832.png](https://i.postimg.cc/x1nDCGzq/Tumblr-l-104330118836832.png)](https://postimg.cc/w7fb4mFd)
 
 
 <p align="center"><i>"She's so kind. I will do everything to protect that smile on our gentle Mizukage. I hope I can." </i></p>
